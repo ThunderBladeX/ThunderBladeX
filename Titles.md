@@ -292,7 +292,7 @@ The following table illustrates rough equivalencies across major European system
 
 ---
 
-‼️**Rank does not always equal power**‼️
+📣 **A critical insight for writers: rank does not always equal power**
 
 A German Ritter with a strategic castle could exercise more practical authority than an impoverished Italian count with an empty title. A French courtier with the King's ear outweighed a provincial duke. Russian Tsars could elevate or destroy nobles at randomwill, while British peers enjoyed constitutional protections. The European aristocratic systems were not static hierarchies but dynamic, contested structures constantly negotiated through marriage, warfare, legal maneuvering, and royal favor.
 
